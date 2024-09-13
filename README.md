@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Jason-xu-mz
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate on network friends online
+- 📫 reach me xumingzhe905@gmail.com
+- 😄 Pronouns: AI in all
